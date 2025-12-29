@@ -32,7 +32,7 @@ I enjoy physical activity and care about my health, as it forms the foundation f
 
 ### Who I Hope to Meet
 
-I am inclined to build a relationship with a mature, stable, emotionally mindful man. Whether short-term or long-term, the following qualities are important to me.
+I am inclined to build a relationship with a mature, stable, emotionally mindful gentle man. Whether short-term or long-term, the following qualities are important to me.
 
 - Age difference within ±10 years
 - Any background or ethnicity
