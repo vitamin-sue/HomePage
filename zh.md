@@ -1,5 +1,5 @@
 ---
-layout: page
+layout: none
 title: ""
 ---
 # 个人主页
