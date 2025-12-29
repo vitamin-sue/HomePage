@@ -1,6 +1,7 @@
 ---
+layout: page
+title: ""
 ---
-
 # Personal Homepage
 
 > This is not an introduction meant to please everyone; it is a presentation of myself as honestly and clearly as possible.
