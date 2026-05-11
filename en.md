@@ -9,145 +9,159 @@ title: ""
        style="border-radius: 50%;" />
 </p>
 
-# Personal Homepage
+# Personal Page
 
-> This isn’t an introduction meant to please everyone, but an attempt to present my true self as clearly as possible.  
-> The right people will read it and nod in understanding, while those it’s not meant for will naturally move on.
-
----
-
-### About Me
-
-**Basic Information:**
-- Gender: Female
-- Year of Birth: 1979
-- MBTI: INT(F)J
-- Marital Status: Divorced; reasons are complex—both of us were new to relationships, and I realized my personal awakening relatively late.
-- Field: IT
-- Growing Up: Raised in a relatively challenging environment, but I don’t pursue hardship for its own sake. My ideal life is comfortable, calm, and fulfilling.
-- Diet Preference: Light and healthy food; can eat spicy but not obsessed with it.
-
-If I were a fruit, I’d be a ripe passion fruit.  
-If I were a pet, probably a mix between a cat and a Border Collie.
-
-At first glance, I may seem quiet and reserved, but inwardly I’m deeply confident, and can laugh at myself from time to time, emotionally rich and sincere.
-I enjoy a relaxed, leisurely pace of life and tend to follow my own path rather than go with the crowd.
-
-In relationships, I’m more like a cat.
-I enjoy my own company, like exploring, also can be warm and affectionate.
-I value comfort and security in a connection — like a cat, I appreciate slowly building trust and feeling safe within clear boundaries, far more than fleeting excitement or surface-level fun.
-
-At the same time, I’m also like a Border Collie: attuned to others’ emotions, able to analyze problems rationally, communicate proactively, and not be led by my emotions.
-
-I exercise and take care of my body, not to show off, but as a foundation for long-term living.
-My lifestyle is simple and unhurried, my energy isn’t constantly high-octane, and I value recovery and space for myself.
+> This is simply an honest attempt to express who I am.
+> I may not be for everyone,
+> but I hope to be understood by the people who naturally resonate with me.
 
 ---
 
-### The Partner I Hope to Meet
+### 🌙 About Me
 
-I’m drawn to people like this:
-Those who keep their life clean and orderly, and have a sense of control over their own path;
-Who can live well on their own, with stability and groundedness.
+I was born in 1979 and currently work in the IT field.
 
-They are confident, but not showy;
-Considerate of others’ feelings, while also respecting boundaries.
+The first half of my life involved quite a few changes, and it took me some time to gradually understand the kind of life that truly suits me.
 
-They have the courage to face what’s real, including their own vulnerability;
-They are willing to communicate—able to express their feelings clearly, and to listen with reason.
-
-In both relationships and life, they can give, and they can receive.
-That kind of unforced, unentangled, inner steadiness makes me feel safe.
-
-✅ **Traits I Appreciate**
-- Age difference of around ±10 years  
-- Background doesn’t matter  
-- Values cleanliness, neatness, personal aura, and lifestyle  
-
-⚠️ **Possibly Not a Good Fit**
-- Highly dependent on external conditions (material, status, or others’ opinions)  
-- Controlling or wanting to “fix” others  
-- Long-term high stress and low recovery; emotionally unstable  
-- Closed-minded, low tolerance for different viewpoints  
-
-In short, I prefer relationships that are steady, where we can slowly grow closer and evolve together.
+These days, I’m more drawn to:
+> a calm, genuine life with space to breathe, rather than high-intensity or emotionally draining relationships.
 
 ---
 
-### My Ideal Lifestyle
+### 🌿 My Personality
 
-My ideal relationship isn’t about possession, but one that feels safe, comfortable, and allows space.  
-During the day, we focus on our own things—work, hobbies, personal growth—independently and freely.  
-In the evening, we return to our shared world, cook together or go out to eat, share the day’s experiences and thoughts, maintaining intimacy and connection.  
+People usually see me as quiet, composed, and low-profile at first.
 
-I enjoy cozy indoor moments, but also stepping into nature to breathe fresh air.  
-What matters to me isn’t daily food or entertainment, but conversation and companionship; camping or overly rugged adventures aren’t my first choice.
+But once they get to know me better, they often discover that I’m not quiet all the time.
 
----
+In relationships where I feel comfortable and emotionally safe,
+I can become quite expressive, curious, playful,
+and sometimes unexpectedly bold.
 
-### Growth and Self-Understanding
+I’m someone who is:
 
-The past three years have brought significant change.  
-I used to be somewhat lost about life’s direction, but through trying, reviewing, and adjusting, things have gradually become clearer, and I’ve found my rhythm.  
-I’m also working on my personality, becoming more outgoing and attentive to my own feelings and experiences.  
-I still make long-term plans but understand life’s unpredictability, accepting outcomes that don’t go as wished.  
-For things about myself, I usually follow my heart and do my best.  
-For things beyond myself, I believe I can influence but not change them.  
+- emotionally perceptive  
+- capable of independent thinking  
+- sensitive to relationship quality  
+- not interested in emotionally exhausting dynamics  
 
-I think the most worthwhile investments are always things that are long-lasting, truly valuable, or make me happier and better.  
-
-I admire people who have influenced the world with intelligence and resilience:  
-
-- **Kazuo Inamori**: Like a mature apple, rational, resilient, mission-driven, yet radiating warmth and light that draws people close.  
-- **Bruce Lee**: Like a sprinting cheetah, focused, efficient, extremely disciplined, never compromising on personal growth and breakthroughs.
+I don’t need constant social interaction,
+but I do value **real connection and emotional responsiveness**.
 
 ---
 
-### Sources of Happiness
+### 🐾 What I’m Like in a Relationship
 
-My happiest moments are usually quiet.  
-For example, when someone who cares about me shows attention,  
-or in intimate moments where I feel relaxed and secure,  
-or when I feel seen, appreciated, and acknowledged—those moments are especially warm. 
-And in sports, I perform at my best and feel so happy I could dance. 
+I naturally warm up slowly and don’t enjoy overly intense or fast-moving dynamics.
 
-Ways I recharge are simple:  
-Sometimes a piece of chocolate, or a good sleep;  
-sometimes a massage, or watching the sea and just letting myself space out, feeling the rhythm of wind and water.
+What matters more to me is:
 
----
+- whether conversation feels natural  
+- whether there is mutual responsiveness  
+- whether the relationship feels relaxing rather than emotionally tense  
 
-### Life “What Ifs”
+If a relationship is right,
+I usually won’t feel the need to “perform” in it.
 
-If time were freely available, I’d love to travel to scenic places across China, experience short-term living in different cities and nature, and also learn cooking, tasting life’s warmth and flavors.  
-At the same time, I’d like to devote myself to deeply studying what truly interests me, slowly accumulating and refining my skills.  
+I can be very calm and quiet,
+but with familiarity, another side of me tends to appear.
 
-I have nothing to complain for my past life. If I only had a year left in life, I would wish to experience a real, intimate, deeply connected relationship.  
-Not just companionship, but mutual understanding and support, making the remaining time warm and fulfilling.
+Sometimes I enjoy staying in my own little world,
+and sometimes a meaningful conversation, a spontaneous idea, or an interesting adventure can suddenly bring out a lot of energy and enthusiasm in me.
 
 ---
 
-### Long-Term Relationship
+### 🌊 My View on Connection
 
-Regarding the future, I already have fairly independent children, and I don’t plan to have more.  
+To me, a good relationship is not necessarily one that is constantly exciting.
 
-If someone chooses me, it may be because I’m gentle, stable, emotionally steady, and accepting.  
-I tend to give emotional support and affirmation, and my expectations for a relationship are practical, not complicated.  
+It’s one where:
 
-Of course, there may be reasons for hesitation.  
-I value cleanliness and order, but I don’t have high demands for material or lifestyle.  
-I’m not too focused on details or formalities, and I don’t spend much energy on things that don’t really interest me.
-My energy isn’t always high-octane; I focus on pacing and recovery.  
-My principles are flexible, but I continually self-reflect and adjust, aiming for steady life and relationships.
+- we can enjoy quiet moments together  
+- have meaningful conversations  
+- comfortably share silence  
+- and still feel connected  
+
+What matters most to me is:
+> whether two people feel more like themselves together, rather than playing roles.
+
+I appreciate emotionally stable people,
+but I’m also drawn to relationships that have warmth, vitality, and a little playful energy.
 
 ---
 
-### A Note for You
+### 🌙 The Lifestyle I Enjoy
 
-If you’d like, you can quietly share a little secret with me:  
-What made you interested in me—just one or two points is fine;  
-Or anything you think I should know to better understand you;  
-And finally, feel free to ask me the one question you most want to know.
+I enjoy a slower and more balanced pace of life.
+
+Ideally:
+
+- we each have our own work, interests, and personal space during the day  
+- and reconnect in the evening through dinner, conversation, or simply spending time together  
+
+I enjoy the comfort of city life,
+as well as occasional quiet time in nature.
+
+Compared to constant excitement,
+I’m more drawn to experiences that feel genuinely grounding and relaxing.
+
+That said, I’m not always a “stay-at-home” type.
+
+With the right person and the right energy,
+I actually enjoy exploring new things,
+and I do have a spontaneous side.
+
+---
+
+### 🧭 The Kind of Person I’m Drawn To
+
+I tend to feel attracted to people who are:
+
+- organized but not rigid  
+- emotionally stable but not emotionally shut down  
+- thoughtful and communicative  
+- capable of being alone without avoiding connection  
+- curious about relationships rather than defensive toward them  
+
+I’m generally less drawn to highly performative personalities,
+and more drawn to people who:
+> may appear reserved at first,
+> but gradually reveal warmth, depth, and authenticity over time.
+
+---
+
+### ⚠️ Relationship Dynamics That Probably Won’t Suit Me
+
+- relationships focused mainly on status, conditions, or outcomes  
+- long-term emotional unavailability or avoidance  
+- controlling or overly critical personalities  
+- rigid thinking with little openness to different perspectives  
+- relationships lacking warmth or emotional interaction  
+
+---
+
+### 🌙 About Long-Term Relationships
+
+I’m not particularly attached to labels or relationship formalities.
+
+What matters more to me is:
+> whether the relationship helps both people feel calmer, more genuine, and more connected.
+
+A healthy relationship doesn’t need to be dramatic or intense,
+but it should allow both people to gradually relax,
+without constantly proving themselves or performing roles.
+
+---
+
+### 🌿 Where I Am in Life Now
+
+At this stage of life,
+I have a much clearer understanding of the kind of relationship that suits me.
+
+Not something built only on intense chemistry,
+but a connection that slowly becomes:
+stable, natural, comfortable,
+while still holding a sense of vitality, curiosity, and warmth.
 
 ---
 
